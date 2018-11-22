@@ -1,2 +1,0 @@
-# samfader.com
-samfader.com
